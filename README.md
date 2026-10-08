@@ -6,7 +6,7 @@
 - Tambien aprobe el trinity exam en 2022 🤓​​
 - Tengo experiencia laboral en una empresa de insumos de seguridad 🧐
 
-###Actualmente ✨
+  Actualmente ✨
 
 - Estoy estudiando ciencia de datos en la universidad austral
 - Se usar Pyhon a la perfección y estoy aprendiendo R a fondo
