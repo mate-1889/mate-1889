@@ -4,7 +4,7 @@
 - Hice los estudios primarios y secundarios en el colegio inmaculado corazon de Maria Adoratrices, de la secundaria me gradue con una orientacion a Economia 💙​
 - Tengo un nivel B2 de ingles certificado (cambridge first certificate) 😎​
 - Tambien aprobe el trinity exam en 2022 🤓​​
--Tengo experiencia laboral en una empresa de insumos de seguridad 🧐
+- Tengo experiencia laboral en una empresa de insumos de seguridad 🧐
 
 ###Actualmente ✨
 
